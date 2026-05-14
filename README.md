@@ -1,2 +1,0 @@
-# SINIA_NEYSSI.github.io
-SINIA NEYSSI
